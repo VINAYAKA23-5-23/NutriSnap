@@ -22,8 +22,8 @@
    **Email:**   varunshivakumarspsv@gmail.com
    **Phone:** +91-6362333360
 
-4. **Name:** Vinayak Angadi  
-   **Email:**   Vinayakangadi96@gmail.com
+4. **Name:** Vinayaka Angadi  
+   **Email:**   Vinayakaangadi96@gmail.com
    **Phone:** +91-9108645942
 
 > 
